@@ -1,0 +1,1 @@
+# Pagina-degrada-o
